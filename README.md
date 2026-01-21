@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently pursuing engineering in MRIT, Branch CSE<br>I'm looking to collaborate with skill learning<br>I'm looking for help with new solutions for problem<br>I'm currently learning upgrading skills 
+I am currently pursuing an Engineering degree in Computer Science at MRIT.<br>I am eager to collaborate on skill-building projects and hands-on learning opportunities.<br>I enjoy working on innovative solutions to real-world problems.<br>I am continuously upgrading my technical skills and expanding my knowledge.
 
 
 ## 🌐 Socials:
