@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently pursuing engineering in MRIT, branch CSE<br>I'm looking to collaborate with skill learning<br>I'm looking for help with new solutions for problem<br>I'm currently learning upgrading skills 
+I'm currently pursuing engineering in MRIT, Branch CSE<br>I'm looking to collaborate with skill learning<br>I'm looking for help with new solutions for problem<br>I'm currently learning upgrading skills 
 
 
 ## 🌐 Socials:
